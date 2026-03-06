@@ -1,2 +1,1 @@
-# ishankolado.github.io
-my personal site ho yo
+For My Love To Aaku Pattoie
